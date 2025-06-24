@@ -1,5 +1,5 @@
-## Hi there 👋
-
+## DON'T TOUCH THE DIAL
+![](https://file.garden/aBm_EJdbGjS8LzRX/ASD.png)
 <!--
 **TENNAVISION/TENNAVISION** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
